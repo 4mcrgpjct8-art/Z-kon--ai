@@ -1,0 +1,2 @@
+# Z-kon--ai
+Učenie 
